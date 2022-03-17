@@ -22,5 +22,6 @@
 
 ##THEN I can save my initials and score
 
-
-![$PZ$_L%HRYZC76_MZ9})XWJ](https://user-images.githubusercontent.com/99444229/158748012-aa78b6b8-234f-4629-8b32-6c039478893b.png)
+![BG $ S (REGP4}P50R1V Q](https://user-images.githubusercontent.com/99444229/158887830-1adc0f5a-af05-439f-b15a-9f4b1aa4ed64.png)
+![$XQ`U5AE@ )RDC EK${2ZMU](https://user-images.githubusercontent.com/99444229/158887833-557ecdc9-ca6d-4b87-bb47-92d9106415b8.png)
+![TQDH15W 4QWWV%UWG H)2@X](https://user-images.githubusercontent.com/99444229/158887834-836e3044-8718-4105-8393-2cc6d861acb5.png)
